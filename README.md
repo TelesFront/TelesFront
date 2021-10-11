@@ -19,5 +19,3 @@
 </div>
 
 <br>
-
-Apaixonado por Desenvonvimento Web e por criar coisas novas.
