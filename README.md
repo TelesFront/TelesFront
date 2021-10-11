@@ -1,4 +1,4 @@
-## Olá!  Eu sou o Victor Teles 👋
+## Hi!  y'am Victor Teles 👋
 
 <br>
 
